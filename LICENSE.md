@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with kaizen elite Scripts, the #1 Script. Includes auto-upgrade and auto-sell for unbeatable performance.
 
 
 
